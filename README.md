@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @1Crazymoney
 - 👀 I’m interested in your skills and==&& intelligence...
 - 🌱 I’m currently learning to love ag-a.i.-n; Business,Code,Defi,Everything web3...No Entiendes La Onda (How I Could Just Kill A Man) (Spanish Version)
-- 💞️ I’m looking to collaborate on open source Wife; CATHOLIC? FEMALE==WOMAN, SINGLE?...Want to be Pregnant and bearfoot for 7 years??? yes appears phalic...
-- 📫 How to reach me ... out stretch arm ...NETWORK CHICHA...
+- 💞️ I’m looking to collaborate on open source 
 <!---
 1Crazymoney/1Crazymoney is ✨ special ✨ 
 globe = {
