@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @1Crazymoney
+- 👋 Hi, I’m @Sound$Money
 - 
 - 👀 I’m interested in your skills and==&& intelligence...
 - 🌱 I’m currently learning to love ag-a.i.-n; Business,Code,Defi,Everything web3...technology, math, language, spiritual warfare...)
